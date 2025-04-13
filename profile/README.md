@@ -4,6 +4,8 @@
 
 Are you ready for an **epic retro arcade experience** that never gets old? **Doodle Jump Unblocked** is here to bring back the thrill of **pixel-style jumping madness**, whether you're at home, school, or on the go. With its **insanely addictive gameplay** and **hyper-casual design**, this game guarantees hours of fun and challenge for all ages!
 
+## <a href="https://izigames.net/doodle-jump/">👉 Play Doodle Jump Unblocked 👈</a>
+
 ---
 
 ### 🚀 What is Doodle Jump Unblocked?
